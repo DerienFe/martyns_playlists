@@ -20,5 +20,6 @@ Martyn's Best Party Tunes
 * 14) Vincent fernandez - El rey
 * 15) Smashmouth - Allstar
 * 16) MIA – Paper Planes
+* 17) AfroB - Joannah (Drogba)
+* 18) Dynamite - AC/DC
 
-I'm too sleepy to think about what to add...
