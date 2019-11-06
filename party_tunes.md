@@ -10,9 +10,6 @@ Martyn's Best Party Tunes
 * 6) Charlie XCX - 1999
 * 8) Sam Fender - Hypersonic Missiles
 * 9) Flume - You and me
-
-^comment: way too 90s. We need some Queen B and 50cent
-
 * 10) MIA – Paper PlanesD
 * 11) Linkin Park - In the end
 * 12) Vanessa carlton - 1000 miles.
@@ -22,3 +19,5 @@ Martyn's Best Party Tunes
 * 16) MIA – Paper Planes
 * 17) AfroB - Joannah (Drogba)
 * 18) Dynamite - AC/DC
+* 19) Chronix - Who Knows
+* 20) Pedulum - Watercolour
