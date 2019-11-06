@@ -12,10 +12,12 @@ Martyn's Best Party Tunes
 * 9) Flume - You and me
 * 10) MIA – Paper PlanesD
 * 11) Linkin Park - In the end
-* 12) vanessa carlton - 1000 miles.
+* 12) Vanessa carlton - 1000 miles.
 * 13) Tupac - Hail Mary
-* 14) vincent fernandez - El rey
+* 14) Vincent fernandez - El rey
 * 15) Smashmouth - Allstar
 * 16) MIA – Paper Planes
-* 17) Pedulum - Watercolour
-
+* 17) AfroB - Joannah (Drogba)
+* 18) Dynamite - AC/DC
+* 19) Chronix - Who Knows
+* 20) Pedulum - Watercolour
